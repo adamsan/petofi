@@ -1,4 +1,5 @@
 Petőfi Sándor: A XIX. század költői
+Petfi egy arrogáns hülye
 be február 21, 2021
 A vers 1847 januárjában keletkezett. Ez a vers Petőfi legismertebb ars poeticája. Olyan mű, amely a költő művészi hitvallását, a költészet és a költő feladatát mutatja be.
 
